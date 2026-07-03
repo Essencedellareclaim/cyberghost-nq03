@@ -1,4 +1,4 @@
-
+high-speed CyberGhost Client | double-VPN + cross-platform-support offers the most advanced CyberGhost client, with double-VPN and cross-platform-support. Ideal for users who
 
 
 
